@@ -2,24 +2,24 @@
 
 **FAB. XII. Of the Ant and Grashopper.** 
 
-The King of Antil and Pismirian Lords,
-Each mounted on their own peculiar Hoards,
-Sate so distinguish’d Earls, Marqees, and Dukes:
-And not by Blazonrie in Heralds books, 
-Where Worthy Sires produce less worthy Sons, 
-Such as long Patience teach unwearied Duns, 
-At base Mechanicks sawciness admire, 
-Just Debts beseeching, Ruin'd by the Fire; 
-Who scorn all Principles accounted Just, 
-Indulging Sloth, Pride, Ignorance, and Lust: 
-But these advanc'd by Industry and Care, 
-Were to themselves both Ancestor and Heir, 
-Their Purchase for th'insuing Winters store, 
-Entitledd them to Honours less or more.
-  An Envoy from the Grashoperian States, 
-Thus had Conven'd these pettie Potentates, 
-When to the Monarch and his small Devan, 
-Thus humbly their Ambassador began.
+The King of Antil and Pismirian Lords,  
+Each mounted on their own peculiar Hoards,  
+Sate so distinguish’d Earls, Marqees, and Dukes:  
+And not by Blazonrie in Heralds books,   
+Where Worthy Sires produce less worthy Sons,   
+Such as long Patience teach unwearied Duns,   
+At base Mechanicks sawciness admire,   
+Just Debts beseeching, Ruin'd by the Fire;   
+Who scorn all Principles accounted Just,   
+Indulging Sloth, Pride, Ignorance, and Lust:   
+But these advanc'd by Industry and Care,   
+Were to themselves both Ancestor and Heir,   
+Their Purchase for th'insuing Winters store,   
+Entitledd them to Honours less or more.  
+  An Envoy from the Grashoperian States,     
+Thus had Conven'd these pettie Potentates,   
+When to the Monarch and his small Devan,   
+Thus humbly their Ambassador began.  
   Anthillian Soveraign, and Emetian Peers, 
 Enrich'd with wealth from Ceres golden ears! 
 Who in these Penetralia's under ground, 
